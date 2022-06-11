@@ -1,4 +1,4 @@
-# E se o Instragram fosse a evolução do Orkut?
+# E se o Instagram fosse a evolução do Orkut?
 
 Imagina se o Orkut não tivesse morrido... Imagine se, na verdade, o Instagram de hoje fosse um Orkut dos dias de hoje...
 
